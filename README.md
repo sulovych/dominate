@@ -1,3 +1,3 @@
 <h1>Free Cheat For GTA:SAMP<h1>
-
-[sa-mp-060](https://github.com/user-attachments/assets/98f23ac8-6c3e-4cbf-abe0-6419f6a11d10)
+#
+![image_alt](https://github.com/Razzoto47/nl/blob/11cd968813cdba4584aa97c3f2206225c7522d8a/sa-mp-073.png)
